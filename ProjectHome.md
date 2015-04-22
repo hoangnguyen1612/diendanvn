@@ -1,0 +1,1 @@
+Purpose of this project to every body can create their forum
